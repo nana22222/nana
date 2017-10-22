@@ -1,2 +1,3 @@
 # nana
 I love studying......
+leaning about the Features of changing 
